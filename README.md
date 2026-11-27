@@ -17,4 +17,4 @@ Me apasiona el desarrollo de software y estoy buscando mi primera oportunidad co
 Español (nativo) · Inglés (intermedio alto)
 
 ## 📫 Contacto
-[LinkedIn](https://www.linkedin.com/in/walter-diazx-5b6r72/) · [diazwalterjesus12@gmail.com](mailto:diazwalterjesus12@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/walter-diaz12/) · [diazwalterjesus12@gmail.com](mailto:diazwalterjesus12@gmail.com)
